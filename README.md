@@ -26,7 +26,7 @@ Finance & Accounting Professional with over a decade of experience at the Zanzib
 - Secure a finance or business analyst role in Canada while completing my AI/ML program (expected April 2026),
   Applying my 10+ years of finance experience alongside advanced analytics skills.
 - Build a portfolio of analytics and ERP projects to showcase technical expertise.
-- Lead AI/ML-driven transformation initiatives across diverse industries and regions — applying
+- Lead AI/ML-driven transformation initiatives across diverse industries and regions - applying
   Data‑driven solutions in finance, business, education and beyond, while embracing opportunities
   that arise anywhere in the world.
 
